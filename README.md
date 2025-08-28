@@ -1,16 +1,17 @@
-## Hi there 👋
+# H e l l o ! 
 
-<!--
-**C1oudJay/C1oudJay** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://youke1.picui.cn/s1/2025/08/28/68afa666c9cb1.jpg)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I am ***C1oudJay*** , a ***student*** of *Hua1y1n Middle School* from *Jiangsu , China*.
+
+
+**Here are my other mainpages:**
+
+[***luogu***](https://www.luogu.com.cn/)
+
+[***bilibili***](https://space.bilibili.com/494090183)
+
+[***zhihu***](https://www.zhihu.com/people/opakyn)
+
+![](https://youke1.picui.cn/s1/2025/08/28/68afac4d38256.jpg)
