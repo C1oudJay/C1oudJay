@@ -8,10 +8,10 @@ I am ***C1oudJay*** , a ***student*** of *Hua1y1n Middle School* from *Jiangsu ,
 
 **Here are my other mainpages:**
 
-[***luogu***](https://www.luogu.com.cn/)
+[***luogu***](https://www.luogu.com.cn/user/1039691)
 
 [***bilibili***](https://space.bilibili.com/494090183)
 
 [***zhihu***](https://www.zhihu.com/people/opakyn)
 
-![](https://youke1.picui.cn/s1/2025/08/28/68afac4d38256.jpg)
+![](https://cdn.luogu.com.cn/upload/image_hosting/ul1bb7sn.png)
