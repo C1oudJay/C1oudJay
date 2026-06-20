@@ -3,7 +3,7 @@
 ![](https://youke1.picui.cn/s1/2025/08/28/68afa666c9cb1.jpg)
 
 
-I am ***C1oudJay*** , a ***student*** of *Hua1y1n Middle School* from *Jiangsu , China*.
+I am ***Opakyn***.
 
 
 **Here are my other mainpages:**
